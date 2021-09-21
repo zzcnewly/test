@@ -1,3 +1,3 @@
 123
-shit
+no dirty-words
 asd
